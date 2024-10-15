@@ -1,4 +1,4 @@
-## Hi there 👋
+IM NOT SURVIVING THE CODE
 
 <!--
 **allthesadtales/allthesadtales** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

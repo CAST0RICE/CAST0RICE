@@ -10,7 +10,7 @@
 $\color{#E2BDA4}{\textsf{i just want to live in the moment, that's all}}$
 </p>
 <p align="center">
-<a href="https://rentry.co/zubzero">ponytown stuff</a>  <img src="https://enchantments.carrd.co/assets/images/gallery19/83f20297.gif?v=5c8435d5"/>  <a href="https://rentry.co/lovedrugs">rentry</a>
+<a href="https://rentry.co/zubzero">ponytown stuff</a>  <img src="https://enchantments.carrd.co/assets/images/gallery19/83f20297.gif?v=5c8435d5"/>  <a href="https://rentry.co/lovedrugs">rentry </a> <a href="https://itsjustlife.carrd.co/">carrd </a>
 
 <!--
 **allthesadtales/allthesadtales** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

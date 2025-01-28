@@ -1,16 +1,16 @@
 <p align ="center">
-  <img src="https://biscuit.crd.co/assets/images/gallery85/fecdca97.gif?v=cc1c6dfa"/>
+  <img src="https://files.catbox.moe/ebul0g.gif"/>
 <p align="center">
 <img src="https://media1.tenor.com/m/3ApQgY0myUIAAAAC/ena-shinonome-pjsk.gif" />
 </p>
 
 <p align="center">
-  <img src="https://enchantments.carrd.co/assets/images/gallery09/4c67f6c3.gif?v=5c8435d5"/>
+  <img src="https://i.postimg.cc/8CTJHMR6/tumblr-5eba49ae81694e222fdc69b14bbf12b4-f0106e6f-100.gif"/>
 <p align="center">
-$\color{#E2BDA4}{\textsf{i just want to live in the moment, that's all}}$
+$\color{#9A4EBB}{\textsf{i just want to live in the moment, that's all}}$
 </p>
 <p align="center">
-<a href="https://rentry.co/zubzero">ponytown stuff</a>  <img src="https://enchantments.carrd.co/assets/images/gallery19/83f20297.gif?v=5c8435d5"/>  <a href="https://rentry.co/lovedrugs">rentry </a> <img src="https://enchantments.carrd.co/assets/images/gallery05/d8a2f1e5.gif?v=5c8435d5"/> <a href="https://itsjustlife.carrd.co/">carrd </a>
+<a href="https://rentry.co/zubzero">ponytown stuff</a>  <img src="https://enchantments.carrd.co/assets/images/gallery04/de9819e4.gif?v=5c8435d5"/>  <a href="https://rentry.co/bekko">rentry </a> <img src="https://enchantments.carrd.co/assets/images/gallery17/7eb6e6ca.gif?v=5c8435d5"/> </a>
 
 <!--
 **allthesadtales/allthesadtales** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

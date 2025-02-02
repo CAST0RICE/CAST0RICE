@@ -1,7 +1,7 @@
 <p align ="center">
   <img src="https://files.catbox.moe/ebul0g.gif"/>
 <p align="center">
-<img src="https://media1.tenor.com/m/3ApQgY0myUIAAAAC/ena-shinonome-pjsk.gif" />
+<img src="https://files.catbox.moe/lxaw56.gif" />
 </p>
 
 <p align="center">

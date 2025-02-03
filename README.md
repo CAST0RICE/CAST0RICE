@@ -7,8 +7,11 @@
 <p align="center">
   <img src="https://i.postimg.cc/8CTJHMR6/tumblr-5eba49ae81694e222fdc69b14bbf12b4-f0106e6f-100.gif"/>
 <p align="center">
-$\color{#9A4EBB}{\textsf{i just want to live in the moment, that's all}}$
+$\color{#9A4EBB}{\textsf{"i just want to live in the moment, that's all"}}$
 </p>
+<p align="center">
+$\color{#9A4EBB}{\textsf{c+h open int}}$
+  </p>
 <p align="center">
 <a href="https://rentry.co/zubzero">ponytown stuff</a>  <img src="https://enchantments.carrd.co/assets/images/gallery04/de9819e4.gif?v=5c8435d5"/>  <a href="https://rentry.co/bekko">rentry </a> <img src="https://enchantments.carrd.co/assets/images/gallery17/7eb6e6ca.gif?v=5c8435d5"/> <a href="https://thelightofhope.carrd.co/">carrd</a> </a>
 <p align ="center">
